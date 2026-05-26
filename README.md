@@ -1,2 +1,0 @@
-# Tiara
-remed pak komar
